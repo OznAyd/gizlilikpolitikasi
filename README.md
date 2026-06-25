@@ -41,4 +41,4 @@ Bu Gizlilik Politikası zaman zaman güncellenebilir. Yapılan değişiklikler b
 
 Gizlilik Politikası ile ilgili sorularınız için aşağıdaki e-posta adresinden bizimle iletişime geçebilirsiniz:
 
-E-posta: [your-email@example.com](mailto:your-email@example.com)
+E-posta: ozn.ayd.ozn@gmail.com
